@@ -52,3 +52,4 @@ my straw :D https://sharkiegummy.straw.page
 ![](https://64.media.tumblr.com/b3a727b90181a97ee834856af9760653/d4943d8763268bce-65/s100x200/72cd794ab13a3ab70a7726bf5056546ddcfede5c.gifv)
 ![](https://cdn.discordapp.com/attachments/1555684631213383731/1555686283626414260/stamp_1.gif?backend=b2&ex=6ac16d41&is=6ac01bc1&hm=6b3efc82fd9c1f486b61769d1b0f7ced3bc3213096a1dc9cc977b49e7d5e891d&)
 ![](https://64.media.tumblr.com/532d40973f541c58e58a7e666de0edf2/3366eb0736189e92-94/s100x200/d7e8ae68da3b55c29b230f6366f17e35c98f7584.gifv)
+![](https://64.media.tumblr.com/e8031b4a740540a305021a11aecaf551/ed55b03746e32bda-1f/s250x400/30908af7be31f855e215e2958f40311095ae5bc8.pnj)
