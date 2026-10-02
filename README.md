@@ -10,7 +10,7 @@ almost always off tab
 
 i block freely , though not often
 
-
+my straw :D https://sharkiegummy.straw.page
 
 
 ㅤ
