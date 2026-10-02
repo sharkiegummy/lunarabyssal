@@ -49,3 +49,4 @@ my straw :D https://sharkiegummy.straw.page
 
 
 ![](https://64.media.tumblr.com/448226cc6abc334217aa6e2cbc17d506/6e4a2fac2e84088d-a3/s100x200/41d8f7e123eadfbe33132862bbe1f848821f0e18.gifv)
+![](https://64.media.tumblr.com/b3a727b90181a97ee834856af9760653/d4943d8763268bce-65/s100x200/72cd794ab13a3ab70a7726bf5056546ddcfede5c.gifv)
