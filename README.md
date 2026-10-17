@@ -15,18 +15,6 @@ my straw :D https://sharkiegummy.straw.page
 my ata-book ! https://sharkiegummy.atabook.org/?page=1
 
 ㅤ
-
-ㅤ
-
-ㅤ
-
-ㅤ
-
-
-ㅤ
-
-ㅤ
-
 ![](https://media.discordapp.net/attachments/1477119734305652878/1543664120719613994/stamp.png?ex=6a95b0be&is=6a945f3e&hm=2622da3f4c3c77c22a134d6018ace8bc82b1e4338afb05857da19914ce68de87&=&format=webp&quality=lossless)
 ![](https://media.discordapp.net/attachments/1477119734305652878/1543664648426102847/stamp_1.png?ex=6a95b13c&is=6a945fbc&hm=d31ac23ca5a03538522161792d3b874a52b6ed6a41dc72310d773fa36921d184&=&format=webp&quality=lossless)
 ![](https://64.media.tumblr.com/831b58009a776136adca27370067122b/3adeda806a22dd9a-e8/s100x200/3ddec567f7f20368c7d2cf43ca6202951a632ef2.gifv)
